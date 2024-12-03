@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports.
 - 🌱 I’m currently learning English.
 - 💞️ I’m looking to collaborate on music.
-- 📫 How to reach me via gmail.
+- 📫 How to reach me: via gmail.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
